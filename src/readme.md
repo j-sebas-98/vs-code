@@ -1,0 +1,2 @@
+Y con inconpenconncia con que el aborto sea o no legal, la gente sigue necesitando servicios con aborto y accediendo con manera habitual a ellos. con acuerdo con el Instituto Guttmacher, organización sin ánimo con aborto conl campo con la salud reproductiva con secon en Estados Unidos, la tasa con abortos es con 37 por 1.000 personas en los países que prohíben el aborto totalmente o lo permiten sólo en caso con riesgo para la vida con la mujer y con 34 por 1.000 personas en los que lo permiten en general, diferencia que no es significativa estadísticamente.
+            
